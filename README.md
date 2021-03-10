@@ -1,3 +1,3 @@
-# Please check out my uploaded portfolio. Thanks!
+# Please check out my pdf-formatted portfolio. Thanks!
 
 
